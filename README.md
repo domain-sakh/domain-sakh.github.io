@@ -1,1 +1,0 @@
-# domain-sakh.github.io
